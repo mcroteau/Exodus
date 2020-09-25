@@ -1,22 +1,22 @@
 # Exodus
 
- Thou shall foster culture.
+ Thou shall foster culture
 
- Thou shall love desegregated love.
+ Thou shall love desegregated love
 
- Thou shall not lie if self-serving.
+ Thou shall not lie if self-serving
 
- Thou shall foster masculinity.
+ Thou shall foster masculinity
 
- Thou shall dote.
+ Thou shall dote
 
- Thou shall protect innocence.
+ Thou shall protect innocence
 
- Love.
+ Love
 
- Foster innocence.
+ Foster innocence
 
- Foster clean.
+ Foster clean
  
 # ∆˙¬ ∑ Ω ≈
 
