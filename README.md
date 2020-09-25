@@ -18,7 +18,7 @@
 
  Foster clean
  
-# ∆˙¬ ∑ Ω 
+# ∆˙¬ ∑ Ω ≈
 
 
  Recall
