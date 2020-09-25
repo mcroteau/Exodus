@@ -6,7 +6,7 @@
 
  Thou shall not lie if self-serving
 
- Thou shall foster masculinity
+ Thou shall forward masculinity
 
  Thou shall dote
 
