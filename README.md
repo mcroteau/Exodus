@@ -2,21 +2,21 @@
 
  Thou shall foster culture.
 
- Thou shall nurture desegregated love.
+ Thou shall love desegregated love.
 
  Thou shall not lie if self-serving.
 
- Thou shall foster masculinity
+ Thou shall foster masculinity.
 
- Thou shall dote femininity
+ Thou shall dote.
 
- Thou shall protect innocence
+ Thou shall protect innocence.
 
- Love
+ Love.
 
- Foster innocence
+ Foster innocence.
 
- Foster clean
+ Foster clean.
  
 # ∆˙¬ ∑ Ω ≈
 
