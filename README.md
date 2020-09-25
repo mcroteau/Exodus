@@ -1,4 +1,5 @@
 # Exodus
+
  Thou shall foster one's culture.
 
  Thou shall nurture desegregated love.
@@ -17,6 +18,6 @@
 
  Foster clean
 
-# ∞
+# ∆˙¬ ∑ Ω ∞ π 
 
 
