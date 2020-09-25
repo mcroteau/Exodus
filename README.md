@@ -1,6 +1,6 @@
 # Exodus
 
- Thou shall foster one's culture.
+ Thou shall foster culture.
 
  Thou shall nurture desegregated love.
 
