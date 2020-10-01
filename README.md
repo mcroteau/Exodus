@@ -1,6 +1,6 @@
 # Exodus
 
- Thou shall foster culture
+ Thou shall foster one's culture
 
  Thou shall love desegregated love
 
@@ -10,17 +10,14 @@
 
  Thou shall dote
 
- Thou shall protect innocence
+ Thou shall foster & protect innocence
 
- Love
+ Thou shall Love
 
- Foster innocence
-
- Foster clean
+ Recall.
  
 # ∆˙¬ ∑ Ω ≈
 
 
- Recall
 
 .
