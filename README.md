@@ -18,6 +18,8 @@
  
 # ∆˙¬ ∑ Ω ≈
 
+### Open Following
 
-
-.
+The challenge is to create 
+something of your own to follow. 
+God is within each of us in my theory.
