@@ -13,6 +13,10 @@
  Thou shall foster & protect innocence
 
  Thou shall Love
+ 
+ Thou shall not control the mind
+ 
+ Live long, live happy.
 
  Recall.
  
