@@ -1,33 +1,33 @@
 # Zypher: Exodus 
 
- #### Thou shall foster one's culture
+ ### Thou shall foster one's culture
 
- #### Thou shall love desegregated love 
+ ### Thou shall love desegregated love 
  ?
 
- #### Thou shall not lie if self-serving 
+ ### Thou shall not lie if self-serving 
  Thou shall not lie does not work! Im not lying
 
- #### Thou shall forward masculinity 
+ ### Thou shall forward masculinity 
  Assault charge is decreases sperm count by 60%, I'm not lying 
  
- #### Thou shall dote
+ ### Thou shall dote
 
- #### Thou shall foster & protect innocence 
+ ### Thou shall foster & protect innocence 
   Look under couch, its somewhere...
  
- #### Do unto others 
+ ### Do unto others 
  Nothing bad will happen to you
 
- #### Thou shall not control the human mind
+ ### Thou shall not control the human mind
  
- #### Thou shall Love, hold on loosely 
+ ### Thou shall Love, hold on loosely 
  Barely clasp
   
- #### Live long, live happy.
+ ### Live long, live happy.
  Wise words from a wise man
 
- #### Recall.
+ ### Recall.
  
 # ∆˙¬ ∑ Ω ≈
 
