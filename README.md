@@ -12,7 +12,7 @@
 
  Thou shall foster & protect innocence *//Look under couch, its somewhere...*
  
- Do unto others *//Have no fear, nothing bad will happen to you*
+ Do unto others *//Nothing bad will happen to you*
 
  Thou shall not control the human mind
  
