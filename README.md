@@ -8,7 +8,7 @@
  Thou shall not lie does not work! Im not lying
 
  ### Thou shall forward masculinity 
- Assault charge is decreases sperm count by 60%, I'm not lying 
+ An assault charge decreases sperm count by at least 140%, I'm not lying 
  
  ### Thou shall dote
 
