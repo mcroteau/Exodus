@@ -12,6 +12,8 @@
 
  Thou shall foster & protect innocence
 
+ Marry without eternal vows
+ 
  Thou shall Love
  
  Thou shall not control the mind
