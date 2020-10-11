@@ -10,7 +10,7 @@
  
  Thou shall dote
 
- Thou shall foster & protect innocence //Look under couch, its somewhere... enter in Last Man on Earth its still there.
+ Thou shall foster & protect innocence //Look under couch, its somewhere...
  
  Do unto others //Have no fear, nothing bad will happen to you
 
