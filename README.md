@@ -3,7 +3,6 @@
  ### Thou shall foster one's culture
 
  ### Thou shall love desegregated love 
- ?
 
  ### Thou shall not lie if self-serving 
  Thou shall not lie does not work! Im not lying
