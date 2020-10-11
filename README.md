@@ -1,24 +1,24 @@
-# Exodus
+# Zypher: Exodus 
 
  Thou shall foster one's culture
 
- Thou shall love desegregated love
+ Thou shall love desegregated love //?
 
- Thou shall not lie if self-serving
+ Thou shall not lie if self-serving //Thou shall not lie does not work! Im not lying.
 
- Thou shall forward masculinity
-
+ Thou shall forward masculinity //Assault charge is decreases sperm count by 60%, Im not lying. 
+ 
  Thou shall dote
 
- Thou shall foster & protect innocence
+ Thou shall foster & protect innocence //Look under couch, its somewhere... enter in Last Man on Earth its still there.
+ 
+ Do unto others //Have no fear, nothing bad will happen to you
 
- Marry without eternal vows
+ Thou shall not control the human mind
  
- Thou shall Love
- 
- Thou shall not control the mind
- 
- Live long, live happy.
+ Thou shall Love, hold on loosely //Barely clasp, Im not lying
+  
+ Live long, live happy. //Wise words from a wise man
 
  Recall.
  
@@ -29,3 +29,7 @@
 The challenge is to create 
 something of your own to follow. 
 God is within each of us in my theory.
+
+Live long, live happy. 
+Follow internal guidance system, be astonished
+Honor a change of heart
