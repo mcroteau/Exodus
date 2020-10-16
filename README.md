@@ -1,6 +1,6 @@
 #  Jesus
 
-![](http://104.156.252.167/jesus.png)
+![](http://104.156.252.167/jesus.jpg)
 
 I propose in celebration of the life of Jesus
 we move away from the crucifix. The crucifix 
