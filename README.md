@@ -7,7 +7,6 @@ we move away from the crucifix. The crucifix
 symbolizes his death. 
 
 
-
 # Zypher: Exodus 
 
  ### Thou shall foster one's culture
@@ -15,7 +14,7 @@ symbolizes his death.
  ### Thou shall love desegregated love 
 
  ### Thou shall not lie if self-serving 
- Thou shall not lie does not work! Im not lying
+ Thou shall not lie does not work! I'm not lying
 
  ### Thou shall forward masculinity 
  An assault charge decreases sperm count by at least 140%, I'm not lying 
