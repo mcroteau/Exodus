@@ -4,10 +4,10 @@
 
 I propose in celebration of the life of Jesus
 we move away from the crucifix. The crucifix 
-symbolizes his death. 
+symbolizes his death not his life. 
 
 
-# Zypher: Exodus 
+# Exodus 
 
  ### Thou shall foster one's culture
 
