@@ -14,7 +14,6 @@ symbolizes his death not his life.
  ### Thou shall love desegregated love 
 
  ### Thou shall not lie if self-serving 
- Thou shall not lie does not work! I'm not lying
 
  ### Thou shall forward masculinity 
  An assault charge decreases sperm count by at least 140%, I'm not lying 
@@ -22,15 +21,13 @@ symbolizes his death not his life.
  ### Thou shall dote
 
  ### Thou shall foster & protect innocence 
- Look under couch, its somewhere...
  
  ### Do unto others 
- Nothing bad will happen to you
+ Wise words from a wise man
 
  ### Thou shall not control the human mind
  
  ### Thou shall not surrogate, especially a human
- Wise words from a wise man
  
  ### Thou shall Love, hold on loosely 
  Barely clasp
