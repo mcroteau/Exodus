@@ -7,7 +7,7 @@ we move away from the crucifix. The crucifix
 symbolizes his death not his life. 
 
 
-# Exodus 
+# Hope 
 
  ### Thou shall foster one's culture
 
