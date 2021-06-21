@@ -47,3 +47,5 @@ Live long, live happy.
 Follow internal guidance system, be astonished
 Honor a change of heart
 
+Everything here is a collaboration of me and the people I hear.
+
