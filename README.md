@@ -14,7 +14,7 @@ symbolizes his death not his life.
  ### Thou shall not lie if self-serving 
 
  ### Thou shall forward masculinity 
- An assault charge decreases sperm count by at least 140%, I'm not lying 
+ An assault charge decreases sperm count by at least 100%
  
  ### Thou shall dote
 
